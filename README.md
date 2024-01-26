@@ -1,2 +1,2 @@
-# mycollegewebsite1
-I used normal html and css tag to build my own college  NOTE  :- websites is not responsive!
+If you want to make this type of website do follow my Instagram page I. e : Saurabhxviii
+and also on YouTube. 
